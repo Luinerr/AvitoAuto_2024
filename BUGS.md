@@ -71,6 +71,7 @@
 
 Приоритет: Низкий
 
+![image](https://github.com/Luinerr/AvitoAuto_2024/assets/43450488/76446166-0e61-42c8-83e9-f6d0cfeb6805)
 
 
 
